@@ -1,0 +1,1 @@
+# amajdrepo.github.io
